@@ -12,6 +12,6 @@
 平台的分类和筛选功能也非常重要，一个清晰的分类系统帮助你快速找到感兴趣的内容。此外，选择一个更新频繁的平台，确保你能够看到最新的影片。
 最重要的是，确保平台具备良好的安全措施，避免隐私泄露和设备受损。总的来说，选择一个安全、高清且更新及时的平台，能够提供最佳的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/po20250708/po12 ）</span>
 
 
